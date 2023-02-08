@@ -1,1 +1,1 @@
-bye bye betty
+bye bye my fist darectory
