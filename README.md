@@ -1,1 +1,1 @@
-bye bye my fist darectory
+ Bye bye My first directory
